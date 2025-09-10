@@ -5,4 +5,6 @@
 <p align="center" width="100%">
     <img width="33%" src="image">
 
+copinglink **not a system**
+
 [ata](https://lickylee.atabook.org/) ♡ [rentry 1](https://rentry.co/ihasalickyface) ♡ [rentry 2](https://rentry.co/licky-lee)
